@@ -6,7 +6,7 @@ Authors: Melchiorsen JU*, Sørensen KV*, Bork-Jensen J, Kizilkaya HS, Gasbjerg L
 
 *Co-first authors, **Co-corresponding authors
 
-Submitted revision: May 3rd 2023
+Accepted for publication: 22 May, 2023
 
 Journal: The Journal of Clinical Endocrinology & Metabolism (JCEM)
 
